@@ -1,0 +1,13 @@
+# goo-dish_project
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/67e310c9-b40e-429b-b83a-989f5bb1bfa5)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/a80a009f-f9ea-4247-8d62-527afa80a88d)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/8386dd00-6f94-4cef-875d-d873d4925f0b)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/45d2133c-bbfe-461e-8b30-26e6e3b0ebba)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/0199303b-4e9c-4d0d-ad5e-964430f23588)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/783cb0c7-db73-4649-8ff9-209775f8ff8a)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/5528f219-b75b-421b-9e18-3732ee9b7477)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/d52a81e0-25b6-4a9e-a076-de1bd36c1580)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/2a63747f-891a-4cb8-8ce5-712932e45106)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/50c2edbe-f708-4932-b7b0-56e1914fb096)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/2f04563c-1be5-4415-ba2a-aacad47fa557)
+![image](https://github.com/leegunju/goo-dish_project/assets/21851358/0339a094-9bbb-43fa-9f36-f177d7407805)
